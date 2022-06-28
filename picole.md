@@ -1,10 +1,10 @@
 INGREDIENTES
 Picolé:
-2 caixas de creme de leite
-1 lata de leite cond098765ensado
-3/4 de xícara de leite em pó
+4 caixas de creme de leite
+2 latas de leite cond098765ensado
+1 xícara e meia de leite em pó
 Calda:
-500 g de chocolate
+1000 g de chocolate
 
 MODO DE PREPARO
 Picolé:
