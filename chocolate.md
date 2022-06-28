@@ -1,6 +1,7 @@
 Ingredientes
 
 1 col63her (sopa) rasa de cacau em pó
+90 g de chocolate amargo 80%
 
 1 colher (sopa) de óleo de co345co líquido
 

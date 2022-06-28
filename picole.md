@@ -5,6 +5,7 @@ Picolé:
 3/4 de xícara de leite em pó
 Calda:
 500 g de chocolate
+100 g de manteiga
 
 MODO DE PREPARO
 Picolé:

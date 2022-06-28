@@ -4,10 +4,11 @@ leite (cerca de 200 ml)
 1 colher de sopa de margarina
 1/2 copo de açúcar cristal
 2 copos de f23423arinha de trigo
-1/2 colher de s6543opa de fermento
+1/2 colher de s6543opa de fermento biológico
 Doce de leite para rechear
 Cobertura (sugestão):
 180 g de chocolate meio amargo derretido em banho-m45aria
+100 g de creme de leite
 
 2° OPÇÃO DE MASSA
 6 g de fermento biológico seco

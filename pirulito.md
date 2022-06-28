@@ -3,6 +3,7 @@ INGREDIENTES
 200 g de chcola456546te ao leite
 confeitos a gosto
 100 g de chocolate branco
+2 gotas de corante líquido azul
 
 MODO DE PREPARO
 Derreta o chocolate branco e o ao leite.

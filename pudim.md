@@ -6,6 +6,7 @@ INGREDIENTES
 1 e 1/2 xícaras de água
 2 caixinhas de morango picados
 1 xíc333ara de açúcar
+80 g de chocolate branco
 
 MODO DE PREPARO
 Ferva 1 xícara de7654 água. Dissolva as gelatinas na água fervida e acrescente 1/2 xícara de água gelada. Reserve.
